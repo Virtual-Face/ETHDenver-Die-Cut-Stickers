@@ -1,1 +1,2 @@
-# ETHDenver-Die-Cut-Stickers![Take The Green Pill](https://user-images.githubusercontent.com/26789429/145032360-4ff5cb1a-a92a-4ab4-9364-396d01b5b790.jpg)
+# ETHDenver-Die-Cut-Stickers!
+![Take The Green Pill](https://user-images.githubusercontent.com/26789429/145032457-d476eb9d-ef29-42bb-9a03-e0f1281147a1.jpg)
